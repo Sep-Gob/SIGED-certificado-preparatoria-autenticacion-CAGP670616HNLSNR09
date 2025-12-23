@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAGP670616HNLSNR09
+CAGP670616HNLSNR09
